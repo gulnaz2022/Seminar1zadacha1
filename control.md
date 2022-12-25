@@ -24,3 +24,5 @@
 6. несанкционированные умышленные действия других лиц.
 
 <https://studfile.net/preview/2242577/>
+
+![IMAGE](https://yandex.ru/images/search?pos=7&img_url=http%3A%2F%2Fkartinkin.net%2Fuploads%2Fposts%2F2022-03%2F1648492428_19-kartinkin-net-p-kartinki-na-temu-informatsionnaya-bezopasn-20.jpg&text=%D0%B7%D0%B0%D1%89%D0%B8%D1%82%D0%B0%20%D0%B8%D0%BD%D1%84%D0%BE%D1%80%D0%BC%D0%B0%D1%86%D0%B8%D0%B8%20%D0%BA%D0%B0%D1%80%D1%82%D0%B8%D0%BD%D0%BA%D0%B0&lr=44&rpt=simage&source=serp)
